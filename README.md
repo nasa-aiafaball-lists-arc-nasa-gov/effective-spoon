@@ -1,2 +1,2 @@
-anusornthumwari@slist.arc.nasa.gov
+anusornthumwari@lists.arc.nasa.gov
 
